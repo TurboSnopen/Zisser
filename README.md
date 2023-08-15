@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @TurboSnopen
-- 👀 I’m interested in discord nukeing, Htools
-- 💻 I’m currently working on a discord console
-- 📫 How to reach me? DM on discord "TurboSnopen#1203"
+- 👋 Hi, I’m @Zisser
+- 👀 I’m interested in discord, html, pyton!
+- 💻 I’m currently working on a website's!
+- 📫 How to reach me? DM on discord "Zisser"
 
-My discord server: https://discord.gg/Kk9BY2Nn
+My website:
